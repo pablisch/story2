@@ -1,2 +1,2 @@
 # story2
-a pointless story
+a desperate story
